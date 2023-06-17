@@ -40,3 +40,6 @@ bsdvcbsdvcdbcdnasb
 c cb c cbds c
 cbsc abs casbc as
 csbc an
+cb zxb czxbczx
+ xn xzn znx
+  xn nzx
