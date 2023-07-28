@@ -13,3 +13,6 @@ cnxz nx nz
 n sn
 nf vsdn vnsndbvs
 vsdnv sdns 
+csbnc asc nbasbc
+csanc nsa
+nsac asn
